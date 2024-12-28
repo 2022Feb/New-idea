@@ -1,2 +1,1 @@
-# New-idea
-一些产品构思
+# Paid Email Subscription to Weekly News Magazine - Product Concept
